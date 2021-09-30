@@ -4,5 +4,6 @@
 - 💞️ I’m looking to collaborate on ...  any foreplay
 - 📫 How to reach me ...  msg me and we can link 
 
-<!---
+
+
 jayhardick/jayhardick is a ✨ special ✨ repo
